@@ -35,4 +35,4 @@ I enjoy sharing my knowledge and writing about various topics related to web dev
 
 ## Get in Touch
 - **Email:** [mayurrogheliya@gmail.com](mailto:mayurrogheliya@gmail.com) 📧
-- **LinkedIn:** [LinkedIn Profile](www.linkedin.com/in/mayur-rogheliya) 🔗
+- **LinkedIn:** [LinkedIn Profile](https://www.linkedin.com/in/mayur-rogheliya-01204b268/) 🔗
